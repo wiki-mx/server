@@ -9,4 +9,4 @@
 [1.21.10](https://vfntl.lanzoul.com/b014wsaefg)
 
 
-###密码请去本仓库wiki[https://github.com/wiki-mx/server/wiki]
+###密码查看请去本仓库wiki[https://github.com/wiki-mx/server/wiki]
