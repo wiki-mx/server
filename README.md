@@ -1,2 +1,10 @@
 # server
 下载Minecraft-server
+1.21.4[https://vfntl.lanzoul.com/b014wsa70j]
+1.21.5[https://vfntl.lanzoul.com/b014wsa7ti]
+1.21.6[
+1.21.7[
+1.21.7[
+1.21.8[
+1.21.9[
+1.21.10[
