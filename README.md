@@ -1,4 +1,4 @@
-<img width="339" height="225" alt="image" src="https://github.com/user-attachments/assets/20ec8611-10ac-433e-a0c1-2fbb495049d7" />
+<img width="736" height="433" alt="image" src="https://github.com/user-attachments/assets/dfaeb0be-58cf-4c54-9783-99a68a070770" /><img width="339" height="225" alt="image" src="https://github.com/user-attachments/assets/20ec8611-10ac-433e-a0c1-2fbb495049d7" />
 与朋友共享私人服务器
 与朋友联机游戏。订阅 Realms，享受全天候专属服务器，分享你的精彩冒险！
 
@@ -219,6 +219,93 @@ Minecraft 将自动使用您当前 Xbox 档案的玩家代号登录。
 
  <img width="712" height="421" alt="image" src="https://github.com/user-attachments/assets/7d3ff378-9fdf-42d0-ae42-48f34ef16084" />
 
- <img width="1162" height="507" alt="image" src="https://github.com/user-attachments/assets/78ffe3e3-4e6b-48c1-a754-adb99a9378cc" />
+<img width="736" height="433" alt="image" src="https://github.com/user-attachments/assets/9636b694-cba5-45ab-8ce0-a3fa73cbf94b" />
+
+<img width="719" height="407" alt="image" src="https://github.com/user-attachments/assets/c09e036a-b39c-45ee-8e1d-7d8edb031313" />
+
+<img width="705" height="408" alt="image" src="https://github.com/user-attachments/assets/f388afd8-04db-4881-853b-a9eac1d41251" />
+
+<img width="713" height="419" alt="image" src="https://github.com/user-attachments/assets/43506d73-6410-41e7-8407-65a9df9d9e9c" />
+
+新闻
 
 
+
+
+![MC_ThreeStripesCity_NetBlogEditorial_1170x500](https://github.com/user-attachments/assets/5ea3783c-55ac-476b-9a08-ce644c80d67d)
+
+Marketplace
+Cristina Anderca
+作者
+Cristina Anderca
+发布日期
+2025/11/18
+adidas x Minecraft returns
+Explore Three Stripes City and a new collection
+
+We’re teaming up with adidas once again to bring you not just a new collection but also an immersive dynamic world for Minecraft! Gear up IRL with a range of apparel inspired by iconic Minecraft mobs and perilous dimensions. Then, launch Minecraft and uncover Three Stripes City, a dynamic world featuring lush biomes and mysterious ruins that hide forgotten powers – bring a friend along or shape your own adventure! The collection drops throughout November and December at adidas.com/Minecraft, and you can get the dynamic world for free at Minecraft Marketplace! 
+
+Shop the collection 
+Three still images of models wearing items from the new adidas x Minecraft collection
+The latest adidas x Minecraft collection is crafted in the spirit of adventure! Explore a range* of T-shirts, jackets, hoodies, pants, footwear, and accessories (including a lunchbox!), inspired by Minecraft’s most iconic dimensions, mobs, and items. The items span across the Originals, Sportswear, and Terrex ranges, and come in kids’ and junior sizes. Keep an eye on adidas.com/minecraft as the drops roll out! 
+
+Play Three Stripes City 
+
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+
+Three Stripes City is an infinite dynamic world featuring new biomes, structures, gear, animals and more that you can play for free today at Minecraft Marketplace. Once a thriving sports metropolis, the city is now abandoned, its secrets lying dormant under a layer of lush vegetation.  
+
+While seemingly left behind, this world is far from barren. Its vast landscape is scattered with ancient buildings hiding athletic trials and treasures, alive with unique plants and animals, and blanketed in biomes that stretch over the horizon with stunning visual effects. What powers does this enigmatic world hide within its crumbling walls? Face the ancient sports trials and collect your rewards, uncovering what has been forgotten – but be prepared for what you might awaken. 
+
+Three Stripes City’s features 
+
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+
+Three Stripes City is a fresh new way to play Minecraft, whether you prefer to survive, build, or just enjoy the sights. It boasts more than 30 new biomes, 40 animal species, 45 varieties of food, 350 new blocks, custom visual effects, an entire armor overhaul, and over 25 structures – plus some secrets, for good measure. The ancient trials inside the structures will test your athletic (and battle) skills, rewarding you with loot and resources that you can use to craft and upgrade armor sets based on IRL items in the adidas x Minecraft drop.  
+
+What is a dynamic world? 
+
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+A screenshot from the Three Stripes City dynamic world
+
+At their core, dynamic worlds are similar to regular Minecraft worlds – they are infinite, randomly generated, and you can shape them freely. Their novelty comes from the creator’s ability to customize their blocks, biomes, structures, mobs, crafting systems, visual effects, and much more. You get the same freedom to choose your playstyle that’s unique to Minecraft but in a fresh, customized world that’s different in every playthrough. 
+
+Team up, game on!
+A splash art image featuring three characters, split three-ways
+Because some adventures are best shared, Three Stripes City is perfect for playing with friends or the adidas Adventurers add-on. Bring along some real-life allies (maybe even some friendly competitors) or recruit the Coach, Teammate, or Mascot to aid you in your journey. Each adidas Adventurers sidekick provides you with unique perks, like fighting alongside you or an extreme jump boost! 
+
+The Three Stripes City dynamic world and the adidas Adventurers add-on are both available now and free to download at Minecraft Marketplace. Chase the horizon, reshape the world, or face its dangers – there’s plenty of adventure to be had in the mysterious Three Stripes City. 
+
+
+* Product and assortment may vary by region.
+
+  
