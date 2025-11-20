@@ -1,4 +1,4 @@
-# server-启动-请前往wikihttps://github.com/wiki-mx/server/wiki
+# server-启动-请前往wiki[https://github.com/wiki-mx/server/wiki]
 下载 Minecraft:Java Edition 服务器
 想设置多人游戏服务器？
 
