@@ -1,4 +1,4 @@
-# server-启动
+# server-启动-请前往wikihttps://github.com/wiki-mx/server/wiki
 下载 Minecraft:Java Edition 服务器
 想设置多人游戏服务器？
 
@@ -9,7 +9,7 @@
 下载 minecraft_server.1.21.10，并使用以下命令运行：
 
                                             java -Xmx1024M -Xms1024M -jar minecraft_server.1.21.10.jar nogui
-																						如果您想使用图形用户界面启动服务器，您可以省略“nogui”部分。
+										如果您想使用图形用户界面启动服务器，您可以省略“nogui”部分。
 
 如你所知，在此页面下载任何软件，即表示你同意 Minecraft 最终用户许可协议和隐私政策。
 
