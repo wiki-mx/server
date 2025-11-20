@@ -10,3 +10,6 @@
 
 
 ###密码查看请去本仓库wiki[https://github.com/wiki-mx/server/wiki]
+若有问题请来twitter-CN报告谢谢你也可以在GitHub讨论
+[twitter-CN](https://twitter-amethyst.app.haisnap.com)
+[Github-讨论](https://github.com/wiki-mx/server/discussions)
